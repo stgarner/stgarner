@@ -1,0 +1,1 @@
+- @stgarner is interested in regional and idealized model codes.  Reach me at steve.garner@noaa.gov or 609 452-6543.
